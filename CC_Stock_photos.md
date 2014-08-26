@@ -4,19 +4,21 @@ This is a collection of free and royalty free photos from around the web. Each a
 
 http://unsplash.com/
 
-http://magdeleine.co/
+http://magdeleine.co/ (grouped by similar color)
 
 http://getrefe.tumblr.com/
 
 http://www.gratisography.com/
 
-http://startupstockphotos.com/
+http://startupstockphotos.com/ 
 
-http://superfamous.com/
+http://superfamous.com/ (good for textures.)
 
 http://nos.twnsnd.co/ (free vintage photographs from archive)
 
 http://littlevisuals.co/
+
+http://www.raumrot.com/10/ (awesome hipster tech shots)
 
 
 
