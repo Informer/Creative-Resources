@@ -22,8 +22,9 @@ http://littlevisuals.co/
 
 http://www.raumrot.com/10/ (awesome hipster tech shots)
 
+http://www.lifeofpix.com/
 
-
+https://stocksnap.io/
 
 The Creative Commons Licenses type and explaination.
 
