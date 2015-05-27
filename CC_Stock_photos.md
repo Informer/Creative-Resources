@@ -26,6 +26,14 @@ http://www.lifeofpix.com/
 
 https://stocksnap.io/
 
+http://www.alamy.com/
+
+http://thestocks.im/
+
+http://www.stocksy.com/ (really nice stuff - royalty free perpetual licenses)
+
+
+
 The Creative Commons Licenses type and explaination.
 
 Attribution 
